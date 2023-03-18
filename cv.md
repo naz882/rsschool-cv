@@ -2,7 +2,7 @@
 ## Contacts:
 * [Linkedin](https://www.linkedin.com/in/nazym-guliyev/)
 * [Telegram](https://t.me/nzmglv)
-* guliyev.n.d@gmail.com
+* [email](guliyev.n.d@gmail.com)
 
 ## About me:
 I am a project / deliver manager with a 15 years experience in enterprise, I have experience in product management, I help companies bring digital products to the market, I will be useful to companies in the areas of e-commerce,crypto
